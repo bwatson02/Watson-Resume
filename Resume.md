@@ -40,6 +40,6 @@ __Missionary__, Idaho Falls, Idahi
 
 <!-- ### Footer
 
-Last updated: May 2013 -->
+Last updated: Dec 2022 -->
 
 
