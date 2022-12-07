@@ -34,7 +34,7 @@ __Member Frontline__, Sam’s Club (8209); 3081 AR-112, Fayetteville, AR 72704
 __Basketball Offical__,Idaho Falls Parks and Rec, IDHSAA Basketball D6; Idaho Falls, Idaho
 
 `2019-2021`
-__Missionary__, Idaho Falls, Idaho
+__Missionary__, Idaho Falls, Idaho 
 
 
 
